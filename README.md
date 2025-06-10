@@ -17,7 +17,9 @@ I'm passionate about **creative media**, **gaming**, **coding**, and **anime**. 
 
 ## 📫 Let's Connect
 Feel free to reach out or follow me on GitHub to see my journey.
-
+## Here are some of my accounts
+- instagram "@_shadow_sensei_1"
+- email "diptrakabanerjee24@gmail.com"
 ---
 
 🛠️ *Always learning, always building...*
